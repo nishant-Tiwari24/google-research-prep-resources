@@ -1,4 +1,4 @@
-# google-research-prep-resources
+# Google Research Internhip 2026
 Check PDF ✅
 200+ curated links
 Reddit-sourced internship insights
